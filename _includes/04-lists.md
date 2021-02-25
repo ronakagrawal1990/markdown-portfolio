@@ -1,0 +1,4 @@
+- Swimming
+- Dancing
+- Binge Watching
+- Trekking
